@@ -1,1 +1,1 @@
-Welcome to the Math Education Resources overview.
+Welcome to the Math Education Resources overview. You find links to all MER resources here.
